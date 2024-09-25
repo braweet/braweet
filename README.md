@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @braweetsapkota
+- 👀 I’m interested in ...**AI/ML**
+- 🌱 I’m currently learning ...**Web Development**
+- 📫 How to reach me?---------->mail at-> **braweetsapkota@gmail.com**
